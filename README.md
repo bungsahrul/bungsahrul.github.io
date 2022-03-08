@@ -1,2 +1,0 @@
-# bungsahrul.github.io
-hiyak
